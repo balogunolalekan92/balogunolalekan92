@@ -2,7 +2,7 @@
 - 🔭 I’m interested in Data analysis, i'm passionate about helping businesses transform raw data into useful information
 - 🌱 I’m actively learning business analytics/cloud computing
 - 👯 I’m willing to collaborate with individuals, company/organization that needs my skills to add more value to them
-- ☎️ You can reach me [here](wwww.linkedin.com/in/balogunolazeez)
+- ☎️ You can reach me [here](https://wwww.linkedin.com/in/balogunolazeez)
 - 😄 Pronouns: He
 - ⚡ Fun fact: learning complex skills, football and music
   
